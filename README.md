@@ -1,4 +1,4 @@
-##Альбомами
+## Альбомами
 * Beastie Boys — Hello Nasty
 * Control Machete — Solo Para Fanaticos
 * Curse ov Dialect — Wooden Tongues
@@ -45,20 +45,20 @@
 * Run DMC — Down With The King
 * Da Nayborhoodz — Afta Dark... Illa Than Expected
 * Heather B. - Takin Mine (1996)
-
-##Многие любят
-* Public Enemy
 * N.W.A — Efil4zaggin/100 Miles And Runnin&#39;
 * N.W.A — Straight Outta Compton (re)
+* Champ MC - Ghetto Flava
 
-##Близкое
+## Близкое
 * Phunk Junkeez
 
-##Русское
+## Русское
 * Кровосток
-* Dolphin
+* SIDxRAM — Мочивилс
+* SIDxRAM — Мочивилс 2
+* Babangida
 
-##Клипы
+## Клипы
 * [Lords Of The Underground — Neva Faded](http://youtu.be/6kaFP1czY-4)
 * [Lords of the Underground — Chief Rocka](http://youtu.be/YFbLRZCExBk)
 * [Lords Of The Underground — Tic Toc](http://www.youtube.com/watch?v=Ufi5E2jeC_E)
